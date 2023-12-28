@@ -7,7 +7,9 @@
 
 ### Eductaion
 Pursuing Information Technology Engineering from L.D. College of Enineering,
+
 HSC from Kendriya Vidyalaya Rajouri,
+
 10TH CLASS FROM Kendriya Vidyalaya Rajouri, 
 
 
